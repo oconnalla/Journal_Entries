@@ -1,0 +1,2 @@
+# Journal 9.15.18
+My motivations for learning are to increase my quality of life and to improve my sense of self-achievement. I would like to be in a career that provides me with stability while still giving me a chance to feel like I am doing something worthwhile. I would like to one day be able to own my own home, and to have enough stability that if I choose to have kids I know they will be well taken care of. I want t build a foundation for an enriching life.

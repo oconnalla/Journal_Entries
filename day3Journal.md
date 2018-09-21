@@ -1,1 +1,1 @@
-
+my internal forces that motivate me to find time to learn are based off income and a drive for self-improvement. Paying for theses classes using my savings and knowing that I don't ahve a backup plan motivates me to be successful becauase I didn't allow for failure to be an option within my budget or my timeframe for school

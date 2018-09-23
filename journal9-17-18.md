@@ -1,0 +1,1 @@
+My why is to create a better quality of life for myself. I'm seeking a greater level of life fulfillment, purpose, and quality. I want to challenge myself, provide myself with a lifelong career, and have the opportunity to travel. 

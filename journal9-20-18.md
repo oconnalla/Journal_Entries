@@ -1,0 +1,2 @@
+my internal forces that moitvate me to successfuly pass this class stem from a fusion of fear of displeasing people and stress related failure.
+I am motivated to succeed because I have the knowledge that if I fail this course I don't have the finances to take this course again. I also don't like feeling as if I've let anyone down, so I want to succeed because I'd have to have to tell me family that I had failed.

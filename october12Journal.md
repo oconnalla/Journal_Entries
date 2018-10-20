@@ -1,0 +1,3 @@
+There's an old saying: "Experience is what you get when you didn't get what you wanted." What strategies do you use for learning from disappointments (both big and small) so that the net experience becomes productive and positive?
+
+This has actually been huge for me this class. My assignments/performance has been one big ball of disappointment. I was hoping I'd have more time outside of work to stay on top of everything, but I feel like I am always playing catch up. Initially it felt overwhelming, but I've grown accustomed to the feeling and I'm now learning to be more efficient with the time that I do have. This whole experience has been very humbling, and honestly, I like the challenge.  

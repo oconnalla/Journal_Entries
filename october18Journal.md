@@ -1,0 +1,3 @@
+Sometimes, something is easier to learn than we expected it to be. Sometimes, something is more difficult to learn than we expected it to be. Briefly write about an experience with each extreme that you have had in this course.
+
+I honestly think that happens every day. Every day there are simple fixed and crazy complicated fixes. I thought my CSS animation would be a very easy fix, but it turned out to take hours, meanwhile a portion of my javascript only took a few minutes to write out. 
